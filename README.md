@@ -1,0 +1,1 @@
+koborinai_hotel
